@@ -3,4 +3,3 @@ I am a developer and computer science student based in NB, and I like to make th
 - 🌱 I’m currently learning how to build AMAZING websites for you to enjoy!
 - 📫 How to reach me: jgfitzgerald@mta.ca
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Birds aren't real
